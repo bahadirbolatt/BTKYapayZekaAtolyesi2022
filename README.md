@@ -1,0 +1,1 @@
+# BTKYapayZekaAtolyesi2022
